@@ -1,1 +1,1 @@
-# study-5-task by A
+# study-5-task by A and B
